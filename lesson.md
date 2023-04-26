@@ -4,6 +4,9 @@
 
 ---
 ## A few days in the mountains
+_**On the 25th** of may i will vizit my friend in North Osetiya._ His name is Marat.
+I hope to see this mountain!
+![error](mountain.jpg)
 
 ---
 ## Flat in Saint Petersburg
