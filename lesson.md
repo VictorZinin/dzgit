@@ -12,5 +12,7 @@ I hope to see this mountain!
 ---
 ## Flat in Saint Petersburg
 Speshial for conflict!
+Rent a two-room apartment in the center of SP. *At Nevsky prosp. __24__,apart. __68__.*
+
 ---
 ## Others activites
