@@ -10,3 +10,5 @@
 
 ---
 ## Others activites
+
+***I want to visit my friends in Moscow and Crimea!!!***
