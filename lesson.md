@@ -16,3 +16,5 @@ Rent a two-room apartment in the center of SP. *At Nevsky prosp. __24__,apart. _
 
 ---
 ## Others activites
+
+***I want to visit my friends in Moscow and Crimea!!!***
